@@ -1,1 +1,0 @@
-# Kopdziedasanas-parbaude
